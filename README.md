@@ -1,2 +1,5 @@
 # hell-world
-The start of something magical
+
+The lone wolf!
+
+When the wind blows and the white snow falls, the lone wolf dies but the pack survives.
